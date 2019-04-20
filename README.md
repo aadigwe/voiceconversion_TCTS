@@ -1,5 +1,5 @@
 Adaeze Adigwe
-Research Internship at the TCTS Lab, University of Mons, Belgium
+Research Internship at the TCTS Lab, Numediart Insitite, University of Mons, Belgium
 August to December 2017 
 
 
